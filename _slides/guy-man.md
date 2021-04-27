@@ -1,4 +1,4 @@
-change 1 - spelllling mistake
+change 1 - spelling mistake
 
 change 2
 
